@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @luciagastelu
 - 👀 I’m interested in expanding my horizons and learning new things daily
-- 🌱 I’m currently learning to code @ Jovenes a Programar
+- 🌱 I’m currently learning to code @ Jovenes a Programar - Ceibal
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm a big Splatoon, Tetris and Puzzle Bubble fan! And I'm always looking for new music to add to my playlist
 
